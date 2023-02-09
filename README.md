@@ -5,4 +5,4 @@
 - 🙋🏻‍♂️ Front-End Engineer
 - 🎀 Anime lover
 - 💖 Like to travel, play games and taste delicious food
-- 🌃 Cross the stars over the moon to meet your better-self
+- 🌃 To shine , not be illuminated
